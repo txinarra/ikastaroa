@@ -1,0 +1,2 @@
+# ikastaroa
+ikastaroaren ariketak
